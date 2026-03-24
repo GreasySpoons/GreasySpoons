@@ -28,7 +28,11 @@
 
 ###
 
-  [rentry](https://rentry.co/Greasyspoons_Rentry)     ‎ ‎ ‎ ‎  [atabook](https://greasyspoon.atabook.org/?page=1)     ‎ ‎ ‎ ‎  [discordserv](https://discord.gg/HK6AHHEB)</h4>
+<img align="left" height="198" src="https://files.catbox.moe/xitjlr.webp"  />
+
+###
+
+[rentry](https://rentry.co/Greasyspoons_Rentry)     ‎ ‎ ‎ ‎  [atabook](https://greasyspoon.atabook.org/?page=1)     ‎ ‎ ‎ ‎  [discordserv](https://discord.gg/HK6AHHEB)</h4>
 
 ###
 
@@ -40,4 +44,5 @@
 
 <h4 align="center">I LOVE MORAL OREL, STARKID, ROCKY HORROR AND THE MARVIN TRILOGY</h4>
 
+###
 ###
