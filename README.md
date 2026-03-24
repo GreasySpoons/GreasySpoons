@@ -1,16 +1,43 @@
-## Hi there 👋
+<h6 align="center">❝ Will Whizzer be there? I know you have not spoken for a long time But, Dad, He was the best friend that I ever had. ❞</h6>
 
-<!--
-**GreasySpoons/GreasySpoons** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+###
 
-Here are some ideas to get you started:
+<div align="center">
+  <img height="30" src="https://i.postimg.cc/x1mP5x9D/image-2024-05-23-212030973.png"  />
+</div>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+###
+
+<img align="right" height="150" src="https://files.catbox.moe/87p8ix.gif"  />
+
+###
+
+<h2 align="center">Jason Weisenbachfeld, Paul Matthews and Francis Clara Censordolls #1 Fan</h2>
+
+###
+
+<div align="center">
+  <img height="300" src="https://files.catbox.moe/z0r6t9.gif"  />
+</div>
+
+###
+
+<div align="center">
+  <img height="30" src="https://i.postimg.cc/x1mP5x9D/image-2024-05-23-212030973.png"  />
+</div>
+
+###
+
+[rentry](https://rentry.co/Greasyspoons_Rentry)     ‎ ‎ ‎ ‎  [atabook](https://greasyspoon.atabook.org/?page=1)     ‎ ‎ ‎ ‎  [discordserv](https://discord.gg/HK6AHHEB)</h4>
+
+###
+
+<div align="center">
+  <img height="30" src="https://i.postimg.cc/x1mP5x9D/image-2024-05-23-212030973.png"  />
+</div>
+
+###
+
+<h4 align="center">I LOVE MORAL OREL, STARKID, ROCKY HORROR AND THE MARVIN TRILOGY</h4>
+
+###
