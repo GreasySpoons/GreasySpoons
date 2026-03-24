@@ -36,13 +36,13 @@
 
 ###
 
-<div align="center">
+
   <img height="30" src="https://i.postimg.cc/x1mP5x9D/image-2024-05-23-212030973.png"  />
-</div>
+
 
 ###
 
-<h4 align="center">I LOVE MORAL OREL, STARKID, ROCKY HORROR AND THE MARVIN TRILOGY</h4>
+<h4 I LOVE MORAL OREL, STARKID, ROCKY HORROR AND THE MARVIN TRILOGY</h4>
 
 ###
 ###
