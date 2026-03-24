@@ -12,7 +12,7 @@
 
 ###
 
-<h2 align="center">Jason Weisenbachfeld, Paul Matthews and Francis Clara Censordolls #1 Fan</h2>
+<h3 align="center">Jason Weisenbachfeld, Paul Matthews and Francis Clara Censordolls #1 Fan</h3>
 
 ###
 
@@ -22,27 +22,26 @@
 
 ###
 
-<div align="center">
+<img align="left" height="250" src="https://files.catbox.moe/xitjlr.webp"  />
+
+###
+
+<div align="left">
   <img height="30" src="https://i.postimg.cc/x1mP5x9D/image-2024-05-23-212030973.png"  />
 </div>
 
 ###
 
-<img align="left" height="198" src="https://files.catbox.moe/xitjlr.webp"  />
+[rentry](https://rentry.co/Greasyspoons_Rentry)     ‎ ‎ ‎ ‎  [atabook](https://greasyspoon.atabook.org/?page=1)     ‎ ‎ ‎ ‎  [discordserv](https://discord.gg/HK6AHHEB)
 
 ###
 
-  [rentry](https://rentry.co/Greasyspoons_Rentry)     ‎ ‎ ‎ ‎  [atabook](https://greasyspoon.atabook.org/?page=1)     ‎ ‎ ‎ ‎  [discordserv](https://discord.gg/HK6AHHEB)</h4>
-
-###
-
-
+<div align="left">
   <img height="30" src="https://i.postimg.cc/x1mP5x9D/image-2024-05-23-212030973.png"  />
-
-
-###
-
-<h4 I LOVE MORAL OREL, STARKID, ROCKY HORROR AND THE MARVIN TRILOGY</h4>
+</div>
 
 ###
+
+<h4 align="left">I LOVE MORAL OREL, STARKID, ROCKY HORROR AND THE MARVIN TRILOGY</h4>
+
 ###
