@@ -13,7 +13,7 @@
 
 ###
 
-<h3 align="center">Jason Weisenbachfeld,Trina Weisenbachfeld, Paul Matthews and Francis Clara Censordolls #1 Fan</h3>
+<h3 align="center">Jason Weisenbachfeld, Trina Weisenbachfeld, Paul Matthews and Francis Clara Censordolls #1 Fan</h3>
 
 ###
 
