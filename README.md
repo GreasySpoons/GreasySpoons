@@ -8,7 +8,8 @@
 
 ###
 
-<img align="right" height="150" src="https://files.catbox.moe/87p8ix.gif"  />
+<div align="right">
+  <img height="150" src="https://github.com/user-attachments/assets/1fda231e-6d3a-4638-8c6b-e47aa6a0e302" />
 
 ###
 
@@ -17,22 +18,24 @@
 ###
 
 <div align="center">
-  <img height="300" src="https://files.catbox.moe/z0r6t9.gif"  />
+  <img height="300" src="https://github.com/user-attachments/assets/ac0a4de6-6565-41f4-bc83-24b0f6ca4f73"  />
 </div>
 
 ###
 
-<img align="left" height="250" src="https://files.catbox.moe/xitjlr.webp"  />
+<img align="left" height="250" src="https://github.com/user-attachments/assets/372afaa9-bfef-4223-9ccb-8976bb8d66a7"  />
 
 ###
 
-<div align="left">
+  <div align="left">
   <img height="30" src="https://i.postimg.cc/x1mP5x9D/image-2024-05-23-212030973.png"  />
 </div>
 
 ###
 
-[rentry](https://rentry.co/Greasyspoons_Rentry)     ‎ ‎ ‎ ‎  [atabook](https://greasyspoon.atabook.org/?page=1)     ‎ ‎ ‎ ‎  [discordserv](https://discord.gg/HK6AHHEB)
+<div align="left">
+https://rentry.co/Greasyspoons_Rentry     ‎ ‎ ‎ ‎  https://greasyspoon.atabook.org/?page=1
+</div>
 
 ###
 
