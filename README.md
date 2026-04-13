@@ -13,7 +13,7 @@
 
 ###
 
-<h3 align="center">Jason Weisenbachfeld, Paul Matthews and Francis Clara Censordolls #1 Fan</h3>
+<h3 align="center">Jason Weisenbachfeld,Trina Weisenbachfeld, Paul Matthews and Francis Clara Censordolls #1 Fan</h3>
 
 ###
 
@@ -45,6 +45,6 @@ https://rentry.co/Greasyspoons_Rentry     ‎ ‎ ‎ ‎  https://greasyspoon.a
 
 ###
 
-<h4 align="left">I LOVE MORAL OREL, STARKID, ROCKY HORROR AND THE MARVIN TRILOGY</h4>
+<h4 align="left">I LOVE MORAL OREL, STARKIDS HATCHETFEILD SERIES, ROCKY HORROR AND THE MARVIN TRILOGY</h4>
 
 ###
